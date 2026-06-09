@@ -54,4 +54,4 @@
 
 ## 🔗 Connect With Me
 
-⭐ "Learning, Building, and Innovating"
+⭐ "🚀Exploring • Learning • Building • Innovating🚀"
